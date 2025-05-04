@@ -1,1 +1,1 @@
-# -m-khaqq-2025
+Hacklendiniz
